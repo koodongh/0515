@@ -24,7 +24,7 @@
 
 [Disney+ growth has slowed. That's bad news for Disney](https://edition.cnn.com/2021/05/13/media/disney-earnings-q2-2021/index.html)
 
-[Disney+ reaches a major milestone](https://edition.cnn.com/2021/03/09/media/disney-streaming-100-million-subscribers-disney/index.html
+[Disney+ reaches a major milestone](https://edition.cnn.com/2021/03/09/media/disney-streaming-100-million-subscribers-disney/index.html)
 
 [Netflix's subscriber growth slows as vaccinations ramp up and rivals gain strength](https://edition.cnn.com/2021/04/20/media/netflix-earnings/index.html)
 
